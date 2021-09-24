@@ -6,7 +6,7 @@ But please check my other social media or send me an email!
 - Linkedin: https://www.linkedin.com/in/marcelo-kuramoto/
 - E-mail: marcelokuramoto95@gmail.com
 
-Thank yu very much!!
+Thank you very much!!
 
 <!--
 **marcelokuramoto/marcelokuramoto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
